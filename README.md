@@ -1,4 +1,4 @@
-![WhatsApp Image 2025-01-31 at 01 54 27 (2)](https://github.com/user-attachments/assets/ae11ca96-f674-4a5e-b770-376d6773f5f1)# Group Members' Name
+# Group Members' Name
 
 Irfan Qayyim Bin Abdul Mohaimin (2116843)
 Amir Arif Bin Rosli (2116249)
